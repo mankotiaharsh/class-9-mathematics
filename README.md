@@ -1,1 +1,1 @@
-# class-9-mathematics
+# Class-9-Mathematics
